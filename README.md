@@ -27,3 +27,11 @@ Practical Steps:
 •	Develop role-centered laboratory retention tactics.
 
 To conclude, this project empowers businesses with actionable insights to curtail attrition differentially, shaping effective retention approaches for enduring workforce solidity.
+
+
+
+
+
+
+https://github.com/Kunalkumar9354/Pulse-HR/assets/136789814/14a3236e-a59a-42a4-a951-2b968aae1309
+
